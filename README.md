@@ -1,1 +1,1 @@
-# perspective
+# Perspectiva del común
